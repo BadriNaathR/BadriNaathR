@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BadriNaathR
+- 👀 I’m interested in Software development
+- 🌱 I’m currently learning B Tech (IT)
+- 💞️ I’m looking to collaborate on @Zoho
+- 📫 How to reach me 8903474235
